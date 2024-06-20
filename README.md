@@ -1,4 +1,4 @@
 # dani131095
 estou estudando alura e desenvolvendo a linguagem javascript
 
-![](https://tenor.com/pt-BR/view/dorohedoro-shin-dorohedoro-noi-dorohedoro-shinnoi-anime-gif-21932903)
+![](https://pupilasembrasas.com.br/wp-content/uploads/2016/08/Ajin-3.gif)
